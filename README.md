@@ -48,7 +48,7 @@
 - ᴛʀᴜᴍᴘ sᴜᴘᴘᴏʀᴛᴇʀs
 - ʀᴀᴄɪsᴍ.
 - ᴘʀᴏsʜɪᴘᴘᴇʀs.
-- ᴜɴᴅᴇʀ 11.
+- ᴜɴᴅᴇʀ 11.( unless I know u.) 
 
 ᧔࿔᧓⋆₊‧°𐐪♡𐑂°₊⋆⑅˚₊
 
@@ -67,7 +67,7 @@ sʜᴏʀᴛ ɴᴏᴛᴇ- ᴘʟᴇᴀsᴇ ᴅᴏ ᴜɴᴅᴇʀsᴛᴀɴᴅ ᴛʜ�
 
 
 
-𝒍𝒂𝒚 𝒐𝒖𝒕 𝒎𝒂𝒅𝒆 𝒃𝒚 𝒎𝒚 𝒂𝒎𝒂𝒛𝒊𝒏𝒈 𝒃𝒓𝒐𝒕𝒉𝒆𝒓 [𝑮𝒊𝒇𝒕𝒆𝒅 𝒃𝒚 𝑲𝒊𝒚𝒐.](https://github.com/Our16bitwars)
+𝒍𝒂𝒚 𝒐𝒖𝒕 𝒎𝒂𝒅𝒆 𝒃𝒚 𝒎𝒚 𝒃𝒓𝒐𝒕𝒉𝒆𝒓 [𝑮𝒊𝒇𝒕𝒆𝒅 𝒃𝒚 𝑲𝒊𝒚𝒐.](https://github.com/Our16bitwars)
 
 
 <img width="1200" height="480" alt="Untitled237_20251126200220" src="https://github.com/user-attachments/assets/5277d2e9-d1ba-4704-ab7a-702c6a917380" />
